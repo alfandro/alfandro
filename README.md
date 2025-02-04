@@ -1,1 +1,1 @@
-#300 horas en un solo pokémon (sufrí cada maldito segundo)
+# 300 horas en un solo pokémon (sufrí cada maldito segundo)
